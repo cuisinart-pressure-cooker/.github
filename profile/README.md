@@ -11,7 +11,7 @@
 
 <p>The <strong>Cuisinart Pressure Cooker</strong> is a top choice for home cooks looking for convenience, safety, and precision. Known for its modern design and advanced features, it makes pressure cooking easy and efficient, whether you are preparing quick weeknight meals or slow-cooked delicacies.</p>
 
-[**✅ Buy No at Amazon**](https://amzn.to/3Dk9MK5)
+[**✅ Buy Now at Amazon**](https://amzn.to/3Dk9MK5)
 
 <h2>Why Choose a Cuisinart Pressure Cooker?</h2>
 
@@ -27,7 +27,7 @@
     <li><strong>Energy-Efficient</strong>: Reduces cooking time by up to 70% while maintaining food flavors and nutrients.</li>
 </ul>
 
-[**✅ Buy No at Amazon**](https://amzn.to/3Dk9MK5)
+[**✅ Buy Now at Amazon**](https://amzn.to/3Dk9MK5)
 
 <h2>Pros & Cons of Cuisinart Pressure Cookers</h2>
 
